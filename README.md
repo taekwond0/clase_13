@@ -23,8 +23,34 @@ El grado de elasticidad y deslizamiento del piso, debe estar aprobado por la Coo
 # Color:
 La combinación del color de la superficie del piso, debe evitar producir reflejos desagradables, o de cansar la vista de Los Competidores y de Los Espectadores. La combinación del color debe también ajustarse apropiadamente con los accesorios del Competidor, el Uniforme y la superficie del Área de Competición.
 
+# Ignacio Morales
+# biografía: 
+
+# Lo más reciente: Ignacio Morales, campeón nacional de Taekwondo, logró coronarse como el mejor del mundo al obtener el primer lugar en el Canadá Open Taekwondo 2023, en la categoría de Kyorugi sénior. En el campeonato realizado en Vancouver, Canadá. En la misma semana, viajó a Las Vegas, Estados Unidos para competir en el Open G2 consiguiendo el segundo lugar en el podio. 
+Su reciente triunfo en el Canadá Open, sumado a un segundo lugar en el Open G2 de Las Vegas, le permitieron al deportista de 27 años recibir 32 puntos, siendo el impulso necesario para asegurar su espacio entre los 10 mejores del planeta en la categoría 68 kilos, escalando dos puestos. Por otro lado, el chileno se ubicó en el 18° puesto del ranking olímpico, esencial en la carrera para clasificarse a los Juegos Olímpicos.
+
+# Podio: 
+
+Open G2 
+- 2023 Las Vegas (Estados Unidos) Medalla de plata Kyorugi senior
 
 
+Canadá open taekwondo:
+- 2023 Vancouver (Canadá) Medalla de Oro Kyorugi senior
+
+Juegos Panamericanos:
+- 2019	Lima (Perú)	Medalla de bronce	–68 kg
+- 
+Campeonato Panamericano :
+- 2018	Spokane (Estados Unidos)	Medalla de plata	–68 kg
+- 2021	Cancún (México)	Medalla de bronce	–68 kg
+- 2022	Punta Cana (Rep. Dominicana)	Medalla de bronce	–68 kg
+
+Otros Resultados
+- 2014	Juegos Suramericanos	Santiago de Chile (Chile)	Medalla de oro	–58 kg	6​
+- 2017	Juegos Bolivarianos	Santa Marta (Colombia)	Medalla de bronce	–68 kg	6​
+- 2018	Juegos Suramericanos	Cochabamba (Bolivia)	Medalla de oro	–68 kg	7​
+- 2022	Juegos Bolivarianos	Valledupar (Colombia)	Medalla de plata	–68 kg	8​
 
 # cinturones
 https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.istockphoto.com%2Fes%2Ffotos%2Fcintur%25C3%25B3n-de-karate-negro&psig=AOvVaw2OLwp8L_h0tM9kfDQ9nYqD&ust=1685983025899000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCLi_5qyGqv8CFQAAAAAdAAAAABA6![image](https://github.com/taekwond0/clase_13/assets/127857911/07b9c0ad-9a7d-4f78-a583-116e5cd0bfca)
