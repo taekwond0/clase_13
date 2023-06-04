@@ -72,6 +72,10 @@ https://www.google.com/url?sa=i&url=https%3A%2F%2Fes.dreamstime.com%2Fperspectiv
  https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.marca.com%2Fjuegos-olimpicos%2Ftaekwondo%2Ftodo-sobre.html&psig=AOvVaw2OqmNXYKMrKbN-asfjE6ST&ust=1685983975362000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCJi2xfGJqv8CFQAAAAAdAAAAABAM![image](https://github.com/taekwond0/clase_13/assets/127857911/4cf00c69-8d3e-4992-af28-328d60b79c57)
 
 
+# Ignacio 
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.eldesconcierto.cl%2Fdeportes%2F2022%2F10%2F07%2Fignacio-morales-un-super-clase-tricampeon-y-chile-suma-15-medallas-en-juegos-sudamericanos.html&psig=AOvVaw3muwHVUSXme4CngnK4zq-a&ust=1685985315980000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCLjo6PCOqv8CFQAAAAAdAAAAABAE![Uploading image.png…]()
+
+
 
 
 
