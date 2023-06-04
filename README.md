@@ -31,4 +31,8 @@ Esta teoría sostiene que Choi un nativo de corea a fines de la segunda guerra m
 
 
 links 
-https://soloartesmarciales.com/blogs/news/taekwondo-wtf-historia-y-mision 
+qué es: https://soloartesmarciales.com/blogs/news/taekwondo-wtf-historia-y-mision 
+
+wtf: http://www.worldtaekwondo.org/index.html 
+
+origen: https://buleria.unileon.es/bitstream/handle/10612/7963/RUFINO%20AÑORBE_PEDRO%20DE_JULIO_2017.pdf?sequence=1&isAllowed=y 
