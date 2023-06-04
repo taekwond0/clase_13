@@ -67,3 +67,5 @@ qué es: https://soloartesmarciales.com/blogs/news/taekwondo-wtf-historia-y-misi
 wtf: http://www.worldtaekwondo.org/index.html 
 
 origen: https://buleria.unileon.es/bitstream/handle/10612/7963/RUFINO%20AÑORBE_PEDRO%20DE_JULIO_2017.pdf?sequence=1&isAllowed=y 
+
+cancha: https://soloartesmarciales.com/blogs/news/tatami-oficial-para-competiciones-de-taekwondo-reglamentos-y-medidas 
