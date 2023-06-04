@@ -52,6 +52,12 @@ Otros Resultados
 - 2018	Juegos Suramericanos	Cochabamba (Bolivia)	Medalla de oro	–68 kg	7​
 - 2022	Juegos Bolivarianos	Valledupar (Colombia)	Medalla de plata	–68 kg	8​
 
+# Fernanda: 
+
+Biografía:
+Lo más reciente:
+Podio: 
+
 # cinturones
 https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.istockphoto.com%2Fes%2Ffotos%2Fcintur%25C3%25B3n-de-karate-negro&psig=AOvVaw2OLwp8L_h0tM9kfDQ9nYqD&ust=1685983025899000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCLi_5qyGqv8CFQAAAAAdAAAAABA6![image](https://github.com/taekwond0/clase_13/assets/127857911/07b9c0ad-9a7d-4f78-a583-116e5cd0bfca)
  
