@@ -79,12 +79,21 @@ https://www.google.com/url?sa=i&url=https%3A%2F%2Fes.dreamstime.com%2Fperspectiv
 
 
 # Ignacio 
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.eldesconcierto.cl%2Fdeportes%2F2022%2F10%2F07%2Fignacio-morales-un-super-clase-tricampeon-y-chile-suma-15-medallas-en-juegos-sudamericanos.html&psig=AOvVaw3muwHVUSXme4CngnK4zq-a&ust=1685985315980000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCLjo6PCOqv8CFQAAAAAdAAAAABAE![Uploading image.png…]()
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.eldesconcierto.cl%2Fdeportes%2F2022%2F10%2F07%2Fignacio-morales-un-super-clase-tricampeon-y-chile-suma-15-medallas-en-juegos-sudamericanos.html&psig=AOvVaw3muwHVUSXme4CngnK4zq-a&ust=1685985315980000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCLjo6PCOqv8CFQAAAAAdAAAAABAE![image](https://github.com/taekwond0/clase_13/assets/127857911/35dc8e97-c6bc-47e8-9fdb-18115c416a71)
 
 
+# Gestos arbitraje
+https://www.youtube.com/watch?v=XYYqh_7tLDA
 
+# AP CHAGI 
+https://cdn.shopify.com/s/files/1/0646/4097/files/Ap_Chagi_3_600x600.png?v=1679593403![image](https://github.com/taekwond0/clase_13/assets/127857911/ae38759e-9655-48e8-b468-6bdc5d149dbe)
 
+# NAERYO CHAGI
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fsoloartesmarciales.com%2Fblogs%2Fnews%2Ftaekwondo-tipos-de-patadas&psig=AOvVaw1S9l0DCH6b6sGHx_IvgHUo&ust=1686016493638000&source=images&cd=vfe&ved=0CA4QjRxqFwoTCOjIo4iDq_8CFQAAAAAdAAAAABAR![image](https://github.com/taekwond0/clase_13/assets/127857911/3c1f7298-f49d-40c8-9359-c15790b026c5)
 
+# YOP CHAGI
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fsoloartesmarciales.com%2Fblogs%2Fnews%2Ftaekwondo-tipos-de-patadas&psig=AOvVaw1S9l0DCH6b6sGHx_IvgHUo&ust=1686016493638000&source=images&cd=vfe&ved=0CA4QjRxqFwoTCOjIo4iDq_8CFQAAAAAdAAAAABAs![Uploading image.png…]()
+ 
 
 
 
