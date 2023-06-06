@@ -11,8 +11,11 @@ se volvió deporte oficial de los juegos olímpicos de Sydney, en el año 2000.
 
 # El origen del taekwondo: 
 
-Existen cuatro teorías sobre el origen del taekwondo, pero en esta infografía se hablará de un ade las teorías conocida como 
-# "La teoría Choi-céntrica". 
+<b> "La teoría Choi-céntrica" </b> 
+
+El orígen del taekwondo según la teoría choi-céntrica se basa en la histora de un nativo coreano que tras ser prisionero del ejercito japonés les ensaeña a otros reos una mezcla de <b> Karate y Taekkyon <b/> dos artes marciales que tras 9 años de práctica conformarán lo que ho se conoce como <b> Taekwoondo </b>. 
+
+
 Esta teoría sostiene que Choi un nativo de corea a fines de la segunda guerra mundial fue pricionero tras ser parte del ejercito antijaponés. Cuando esto pasa Choi practica dos artes marciales durante su periodo en la cárcel "Karate y Taekkyon" ambos deportes que había aprendido en Corea; tras 7 años de condena Choi vuelve a Corea y se une como segundo teniente en el ejercito de Corea del sur. En este tiempo este arte marcial proveniente del  Karate y Taekkyon gustó a quienes lo veían, por lo que tras años logró ascender al puesto de general para enseñar a una división de infanter esta nueva arte marcial, esto hasta que se presentó ante el presidente quien insistien que sus tropas aprendieran la disciplina. Este procesóo durproximadamente 9 años para constituir lo que hoy se conoce como taekwondo. 
 
 # MEDIDAS DE LA CANCHA 
