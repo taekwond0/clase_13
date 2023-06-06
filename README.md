@@ -66,6 +66,18 @@ Lo más reciente:
 Podio: 
 
 # cinturones
+ 
+En el Taekwoondo existen un total de <b> 11 </b> cinturones, y de ellos hay <b> 6 </b> colores que representan los diferentes grados. Cada uno de esteos posee un significado diferente y se relacionan directamente con la tradición coreana. Es por esto que los cinturones reflejan la filosofía del arte marcial además de los grados de los alumnos. 
+
+ Algunos significados: 
+- Blanco: la inocencia de quién recién comienza.
+- Amarrillo: relacionado a la planta que comienza a tener raíces.
+- Verde: una planta que ya ha madurado.
+- Azul: el cielo que apunta a una planta más grande.
+- Rojo: peligro ante los actos que se comenten.
+- Negro: lo ha incorporado todo, como una planta madura.
+
+ 
 https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.istockphoto.com%2Fes%2Ffotos%2Fcintur%25C3%25B3n-de-karate-negro&psig=AOvVaw2OLwp8L_h0tM9kfDQ9nYqD&ust=1685983025899000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCLi_5qyGqv8CFQAAAAAdAAAAABA6![image](https://github.com/taekwond0/clase_13/assets/127857911/07b9c0ad-9a7d-4f78-a583-116e5cd0bfca)
  
 # combate 
