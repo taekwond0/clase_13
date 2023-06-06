@@ -81,7 +81,16 @@ En el Taekwoondo existen un total de <b> 11 </b> cinturones, y de ellos hay <b> 
 https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.istockphoto.com%2Fes%2Ffotos%2Fcintur%25C3%25B3n-de-karate-negro&psig=AOvVaw2OLwp8L_h0tM9kfDQ9nYqD&ust=1685983025899000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCLi_5qyGqv8CFQAAAAAdAAAAABA6![image](https://github.com/taekwond0/clase_13/assets/127857911/07b9c0ad-9a7d-4f78-a583-116e5cd0bfca)
  
 # combate 
- Un combate de taekwondo consiste en el enfrentamiento de dos oponentes a los cuales se les llama Chung (azul) y Hong (rojo), este enfrentamietno tiene una duración base de dos rounds de 
+Un combate de taekwondo consiste en el enfrentamiento de dos oponentes a los cuales se les llama Chung (azul) y Hong (rojo), este enfrentamiento es una pelea donde los contrincantes pueden ocupar patadas y puños. Este tiene una duración base de tres rounds, cada uno de 2 minutos y entre ellos 1 minuto de descanso.
+
+Antes de cada combate los competidores son llamados a revisión para ver si poseen las protecciones adecuadas para así evitar cualquier tipo de daño adcional, ya sea a él mismo o a el otro competidor. 
+ 
+Para comenzar el combate:
+ 
+ 
+Para terminar el combate:
+ 
+ 
 https://www.google.com/url?sa=i&url=https%3A%2F%2Fes.123rf.com%2Fphoto_187484316_acci%25C3%25B3n-de-taekwondo.html&psig=AOvVaw0ooJPimTd5TsvAebbHQfEg&ust=1685983267800000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCJj5kKCHqv8CFQAAAAAdAAAAABBP![image](https://github.com/taekwond0/clase_13/assets/127857911/6e97d3cc-196a-400d-905c-7a40bc894120)
  
  # movimientos base 
